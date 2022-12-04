@@ -1,1 +1,1 @@
-# pajina-ba-email-atu-halo-verifikasaun
+# pajina ba email atu halo verifikasaun
